@@ -1,1 +1,1 @@
-Nama : Ikhsan Abdilla
+Hoby : Membaca novel
