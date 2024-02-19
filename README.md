@@ -1,1 +1,1 @@
-Hoby : Membaca novel
+Hewan peliharaan : Ikan 
