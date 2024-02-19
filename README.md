@@ -1,1 +1,0 @@
-Hoby : Membaca novel
